@@ -21,4 +21,5 @@
 
 
 ## Материалы
-Список несловарных токенов от ГИКРЯ
+Список несловарных токенов от ГИКРЯ:
+https://drive.google.com/open?id=1L_HbGrTD_Khv8G_waQbLo4n40tH6JQO4
