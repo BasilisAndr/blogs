@@ -58,6 +58,11 @@ https://drive.google.com/open?id=1L_HbGrTD_Khv8G_waQbLo4n40tH6JQO4
 
 ## 20 ноября 2017
 
+## Контакты
+i.v.krotova@gmail.com - Ира
+@irinakrotova - telegram
+blindedbysunshine@gmail.com - Василиса
+
 Появился полный список слов из ГИКРЯ
 
 ## 23 ноября 2017 (семинар)
