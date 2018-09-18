@@ -17,6 +17,7 @@
 i.v.krotova@gmail.com - Ира<br/>
 @irinakrotova - telegram<br/>
 blindedbysunshine@gmail.com - Василиса<br/>
+@BasilisAndr - telegram
 
 
 ## Задачи
